@@ -1,1 +1,0 @@
-# yoshibishi.github.io
